@@ -183,7 +183,7 @@ If you found these projects helpful, please consider giving this repository a тн
 
 **Summaya Shaikh**
 
-GitHub: https://github.com/yourusername
+GitHub: (https://github.com/summayashaikh079-stack)
 
 LinkedIn: https://linkedin.com/in/yourprofile
 
