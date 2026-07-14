@@ -185,7 +185,7 @@ If you found these projects helpful, please consider giving this repository a тн
 
 GitHub: (https://github.com/summayashaikh079-stack)
 
-LinkedIn: https://linkedin.com/in/yourprofile
+LinkedIn: (https://www.linkedin.com/in/summaya-shaikh-876a03320/)
 
 ---
 
